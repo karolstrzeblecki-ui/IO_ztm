@@ -1,6 +1,0 @@
-﻿# IO_ztm
-
-# IOIOIOIOIO
-
-
-#zmiany z brancha
