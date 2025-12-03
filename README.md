@@ -1,5 +1,0 @@
-﻿# IO_ztm
-
-# IOIOIOIOIO
-
-# zmiany zmiany zmiany
